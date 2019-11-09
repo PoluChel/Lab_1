@@ -4,6 +4,6 @@ tehgetyhrtyjtr
 ytjnyrujnmyhnumnytujn
 !!!cdewrfv
 im sdelal ferst coment in the console ytiliti
-был быты человек ебынный ты обема нах***й почему так то нах**й
+был быты человек е***ный ты обема  почему так то нах**й
 
 
